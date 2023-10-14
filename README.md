@@ -1,1 +1,1 @@
-#### internship-InternPe
+#### AIML Internship-InternPe
